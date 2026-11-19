@@ -1,1 +1,1 @@
-just waste your time go download superscript 1.1.2
+some bugs such as meta.ai chatgpt.com arent working dont blame us its on the webs (fixed soon)
