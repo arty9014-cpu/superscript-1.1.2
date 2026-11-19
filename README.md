@@ -1,1 +1,1 @@
-# superscript-1.1.1 LOL NOTHING HERE JUST GO DOWNLOAD THE AI LOL.
+just waste your time go download superscript 1.1.2
